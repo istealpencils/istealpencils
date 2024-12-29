@@ -5,7 +5,7 @@
 
 . I may act strange and incomprehensibly. Sorry if I offend you at some point.
 
-. if i notice you have shitty behavior against people, doesn't matter who, i will block/hide you
+. if i notice you have shitty behavior towards people, doesn't matter who, i will block/hide you
 
 . i dont mind typing quirks unless th3y'r3 71ke 781s
 
