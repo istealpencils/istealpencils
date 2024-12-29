@@ -11,6 +11,8 @@
 
 . anyone can interact except: under 13 or above 21
 
+im only interested in inanimate insanity and Postal games, thats it
+
 i cosplay as fan or test tube but i feel kind of awkward walking around as them
 
 i like using my ocs more
