@@ -23,7 +23,7 @@ infodump to me freely no strong judgement
 
 ![sciencerulezyayayaya](https://github.com/user-attachments/assets/b830bc73-bd03-4ef9-8a85-62538fd1eb5a)
 
-i like finding weird/obscure music so tell me on atabook NOW 😡😡😡 /nf 
+i like finding weird/obscure music so tell me on atabook NOW 😡😡😡 /nf /lh
 
 ![tumblr_e9e08e7105e8f3aa369440c36e9e97fb_f6252e92_250](https://github.com/user-attachments/assets/efbb74a6-2890-4dc4-a3b8-c156f9afdd98)![tumblr_e9e08e7105e8f3aa369440c36e9e97fb_f6252e92_250](https://github.com/user-attachments/assets/efbb74a6-2890-4dc4-a3b8-c156f9afdd98)![tumblr_e9e08e7105e8f3aa369440c36e9e97fb_f6252e92_250](https://github.com/user-attachments/assets/efbb74a6-2890-4dc4-a3b8-c156f9afdd98)
 
