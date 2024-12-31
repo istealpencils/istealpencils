@@ -39,5 +39,3 @@ i like finding weird/obscure music so tell me on atabook NOW 😡😡😡 /nf /l
 
 
 ![dudecarameldansenhaha](https://github.com/user-attachments/assets/4a585b72-9c69-4d15-9b1f-7b72a078984a)
-
-https://github.com/user-attachments/assets/359c698c-debc-4624-8a1f-19c031f20c4a
