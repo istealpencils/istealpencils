@@ -12,7 +12,7 @@
 ![regretnothingindeed](https://github.com/user-attachments/assets/0a04fffc-fea4-478a-a97c-b0b572769111)![blinkiesCafe-0G](https://github.com/user-attachments/assets/1d208be0-2834-45d5-92ff-206c46fdc738)![tumblr_66c0568161fa1bce76c76a6afa32e05e_2c8c6b4f_250](https://github.com/user-attachments/assets/83701105-8e23-4c7b-88d8-5564f54c0a14)
 
 
-here are my interests: Inanimate Insanity, Postal series, CFMOT, Madness Combat, Hatred, Terraria, Stardew Valley
+here are my main interests: Inanimate Insanity, Postal series, CFMOT
 
 i cosplay as fan or test tube
 
