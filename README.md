@@ -8,7 +8,7 @@
 
 ![exclamationsssszasz](https://github.com/user-attachments/assets/513bf1f1-78d2-4401-8831-6a84b8c9b6c6) i am very socially awkward and pretty dry
 
-![exclamationsssszasz](https://github.com/user-attachments/assets/513bf1f1-78d2-4401-8831-6a84b8c9b6c6) i may or may not respond or speak (i get anxious easily)
+![exclamationsssszasz](https://github.com/user-attachments/assets/513bf1f1-78d2-4401-8831-6a84b8c9b6c6) i may or may not respond or speak (i get anxious easily or offtab)
 
 ![exclamationsssszasz](https://github.com/user-attachments/assets/513bf1f1-78d2-4401-8831-6a84b8c9b6c6) no dni, i hide freely
 
