@@ -6,7 +6,7 @@
 
 
 
-![exclamationsssszasz](https://github.com/user-attachments/assets/513bf1f1-78d2-4401-8831-6a84b8c9b6c6) i am very socially awkward and pretty dry
+![exclamationsssszasz](https://github.com/user-attachments/assets/513bf1f1-78d2-4401-8831-6a84b8c9b6c6) i am very socially awkward and can be pretty dry
 
 ![exclamationsssszasz](https://github.com/user-attachments/assets/513bf1f1-78d2-4401-8831-6a84b8c9b6c6) i may or may not respond or speak (i got anxious or offtab)
 
