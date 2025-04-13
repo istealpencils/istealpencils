@@ -2,22 +2,35 @@ heaaayyyyyyyy
 
 ![bluepencilaaaaaa](https://github.com/user-attachments/assets/4029a1ac-c239-4390-8f11-71840ec1b3ac)![bluepencilaaaaaa](https://github.com/user-attachments/assets/4029a1ac-c239-4390-8f11-71840ec1b3ac)
 
-![worldisafuckaa](https://github.com/user-attachments/assets/1b992f14-75d7-4b60-8bcb-0885df88f3f8)![tumblr_66c0568161fa1bce76c76a6afa32e05e_2c8c6b4f_250](https://github.com/user-attachments/assets/d95b769a-0423-4b08-9760-be9e0cdd5b35)![tooclosea](https://github.com/user-attachments/assets/76f03691-aa85-4c70-9488-215902cdce87)![dablinkehhehe](https://github.com/user-attachments/assets/225b8203-ffe0-4a34-9bbd-f3097d468650)![KISSMYBASSSSS](https://github.com/user-attachments/assets/9e40577c-b207-48ee-af87-3803339b1cd4)
+![worldisafuckaa](https://github.com/user-attachments/assets/1b992f14-75d7-4b60-8bcb-0885df88f3f8)![blinkiesCafe-xiaahahahaaa](https://github.com/user-attachments/assets/e0992b17-4b07-4deb-8090-982174c6a002)![noseybastardddddd](https://github.com/user-attachments/assets/d7a3b342-0207-4f32-8727-7f1df3c23852)![technoaaa](https://github.com/user-attachments/assets/4a7106d2-e19a-47b1-a485-6be8cb4eeeae)![ctrlaltdelblinkhehehe](https://github.com/user-attachments/assets/4898ce77-ac5f-4040-9af9-d63d9f38f976)
 
 
-![PISSSSSSSSSSSSA](https://github.com/user-attachments/assets/179fb322-c179-4305-9392-1d82a8550310)![SHITTTTTTTTA](https://github.com/user-attachments/assets/1f25740f-5e64-4102-85f2-3dca9af1487e)![optimize (FUCK](https://github.com/user-attachments/assets/a769bd91-087f-4697-b133-7c4b81ef0904)![INEEDMYPENCIL](https://github.com/user-attachments/assets/8c2101af-3758-46b4-8234-d3d955ffa34a)![completeuntalleneted](https://github.com/user-attachments/assets/01499cc1-5422-4889-af93-b8bfd3c172d4)![hatefgbijjkgfhgfhhgfddfghhfgd](https://github.com/user-attachments/assets/cb618f3c-5d11-44e2-9429-a81207dd1345)![IDONTSUCKAAAASSSSS](https://github.com/user-attachments/assets/ef01fa4e-3d2f-4b5d-975a-b58139fe5561)![lazybastarddddddddddddddd](https://github.com/user-attachments/assets/286dfdcb-7923-4ff6-8c1d-4923cdcc0d45)
+
+
+
+
+![aycabronn](https://github.com/user-attachments/assets/42267f44-a070-4455-80d6-d2075c9d0279)![FUCKTHISGUYAA](https://github.com/user-attachments/assets/56dc5536-7d20-4b83-8589-a888240a2f9c)![easilydistracteddddd](https://github.com/user-attachments/assets/552e2be7-426c-4546-92c8-1468feeda022)![INEEDMYPENCIL](https://github.com/user-attachments/assets/8c2101af-3758-46b4-8234-d3d955ffa34a)![completeuntalleneted](https://github.com/user-attachments/assets/01499cc1-5422-4889-af93-b8bfd3c172d4)![IDONTSUCKAAAASSSSS](https://github.com/user-attachments/assets/ef01fa4e-3d2f-4b5d-975a-b58139fe5561)![lazybastarddddddddddddddd](https://github.com/user-attachments/assets/286dfdcb-7923-4ff6-8c1d-4923cdcc0d45)![leadpoisoningSEXY](https://github.com/user-attachments/assets/14023702-fcf9-495a-9644-cbe8ab4b6b30)
+
 
 
 happy little helicopters!! yay
 
 ![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)![helicopter 28](https://github.com/user-attachments/assets/8a419a9f-9ccd-48c0-a804-724a400434b5)
 
-
-![fiveishyayy](https://github.com/user-attachments/assets/283a9d92-9deb-41d3-b18c-8d5e6c34f22e)![FUCKTHISGUYAA](https://github.com/user-attachments/assets/4f3d47eb-d6d9-48a8-bf73-4de0458897ad)![isupportgrassyea](https://github.com/user-attachments/assets/c6a00a4f-27c2-4940-bc75-e85d7b563f7e)![keepstaringtrick](https://github.com/user-attachments/assets/b7b51f3c-1b65-4c54-a620-50e8e4c99109)![ohmeingottitstheyumenikkithing](https://github.com/user-attachments/assets/92f72bdd-3a2b-4fb1-a453-969d5d8dc5a4)
-![aycabronn](https://github.com/user-attachments/assets/ec1be265-5a41-4379-96db-fc7cbdc4e11e)![countyourdaysa](https://github.com/user-attachments/assets/712ef80b-53ac-49f2-89cd-86310fde9012)![yeehaw](https://github.com/user-attachments/assets/6b6e1d8e-64d7-4d8e-a368-027b501a8613)
+![yeehaw](https://github.com/user-attachments/assets/d7af9a21-7cae-4427-8446-5568a27adf53)![tumblr_0c2c504e3726516ec87b5262ac4a2e35_ef07b611_100](https://github.com/user-attachments/assets/90988e1e-8f2f-48b4-a20b-23d4666c2033)![ohmeingottitstheyumenikkithing](https://github.com/user-attachments/assets/30b8deb8-b328-4112-8b15-3690a69f27a6)![tacomicrobbingikeaLETSGO](https://github.com/user-attachments/assets/621830d0-ef2c-4977-9836-9669c980be3f)![hatefgbijjkgfhgfhhgfddfghhfgd](https://github.com/user-attachments/assets/6ccbd55e-48e1-4b22-a530-c16f4bfb34ec)![edgarrrrrrr](https://github.com/user-attachments/assets/ef54601e-a81f-4d53-b34e-ad2e165e0889)![votvstampaa](https://github.com/user-attachments/assets/68052fb2-721a-41a4-92d8-c46be966a72d)![catexplodeee](https://github.com/user-attachments/assets/50d4e1a2-9a00-48b7-8c9f-8497e95a4a7b)
 
 
-![alifewhatsthat](https://github.com/user-attachments/assets/243a79b9-eb07-4d1e-973f-63b003f0a7ef)![100addicted](https://github.com/user-attachments/assets/63e33485-5334-4f2d-a9e2-f4559419654c)![becoollll](https://github.com/user-attachments/assets/0913ff37-efb9-49a5-be6f-de0f623c0649)![IEATPAPERANDGLUIE](https://github.com/user-attachments/assets/ea5d4499-2231-4b4c-b232-1a902be290f4)![blinkiesCafe-jA](https://github.com/user-attachments/assets/ccb3993e-48b0-46b4-b5e4-10e9070f0b6a)
+![regretnothingindeed](https://github.com/user-attachments/assets/0e8d357d-05a7-4e2d-8324-42cac16f0c24)![dablinkehhehe](https://github.com/user-attachments/assets/cfb10511-9f3f-499f-a771-6bb9de34162a)![onceinalifetimeeee](https://github.com/user-attachments/assets/39630c10-c87e-418f-ae53-9214457e6074)![tumblr_66c0568161fa1bce76c76a6afa32e05e_2c8c6b4f_250](https://github.com/user-attachments/assets/bdd02c13-49d5-417a-8bf9-4aa791b8ee0b)![IEATPAPERANDGLUIE](https://github.com/user-attachments/assets/993f06dc-b94a-480e-8ced-7327d13c8f41)
+
+
+![pencil 5AAAAAAAAAAAAAAA](https://github.com/user-attachments/assets/7a0b9534-c27d-4aac-a487-068f944bed49)![pencil 2AAAA](https://github.com/user-attachments/assets/275b400f-bf48-4ff1-b8b4-033d55fb0b35)![pencillllllaaaaaaaaaaaaaaaaaaaaaaaa](https://github.com/user-attachments/assets/7a7b289a-2124-4d65-aa2b-3d6d6cc18f6d)![penciler111111](https://github.com/user-attachments/assets/28e07f8d-77f7-4efa-83e0-7ffa07c32d89)![pencil 13AADADADASDA](https://github.com/user-attachments/assets/6a3c7ca3-8fef-431a-ad8d-52c902ee61c2)![pernccccccadr](https://github.com/user-attachments/assets/719b1b2c-250a-45eb-b2d3-e5715acef689)![pencgreeeeennnnnnnnnnnnn](https://github.com/user-attachments/assets/a93492c7-3602-443a-94a2-84cbf670d602)![penccicicicic](https://github.com/user-attachments/assets/c197a41f-1aee-4448-bb38-1d5f81a2347e)
+
+
+
+
+
+
+
 
 
 
